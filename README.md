@@ -1,2 +1,0 @@
-# CameraTest
-oshâo9ueiswbvhabdreao9îbrfraqeobrnoâwrebirntfboînsfdigjubnwruifenbpiwubdfeouyvqeorubvqoibrevqb
